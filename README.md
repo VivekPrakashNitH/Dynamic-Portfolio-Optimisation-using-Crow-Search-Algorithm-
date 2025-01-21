@@ -59,7 +59,7 @@ We extend our gratitude to the organizers of the **BAMS-ORSI 2024** conference f
 For any queries or discussions, feel free to reach out:
 - **Vivek Prakash Yadav**
 - Email: [vivekprakashydvofficial@gmail.com](mailto:vivekprakashydvofficial@gmail.com)
-- LinkedIn: [linkedin.com/in/vivek-prakash-yadav](https://linkedin.com/in/vivek-prakash-yadav)
+- LinkedIn: [linkedin.com/in/vivek-prakash-yadav](https://www.linkedin.com/in/vivek-prakash-yadav-a6a794227/)
 
 ---
 
